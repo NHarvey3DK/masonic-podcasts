@@ -11,10 +11,12 @@
 |[Contemplative Builder (Chuck Dunning)](https://chuckdunning.com/)|[Facebook](https://www.facebook.com/contemplativebuilder/)|[YouTube](https://www.youtube.com/channel/UCUHuyIxm5IH2_rYdCOjLbsQ?sub_confirmation=1)|-|[Instagram](https://www.instagram.com/contemplativebuilder/)|
 |[Follow Me](https://www.youtube.com/followmemasonic)|-|[YouTube](https://www.youtube.com/followmemasonic?sub_confirmation=1)|-|-|
 |[Fort Worth 148](https://directory.libsyn.com/shows/view/id/fortworth148)|[Facebook](https://www.facebook.com/fortworthlodge148/)|-|[Twitter](https://twitter.com/FortWorth148)|-|
+|Freemasons Without Borders||[YouTube](https://www.youtube.com/channel/UCMMnsIZpBZbf7k99m7mW6yQ?sub_confirmation=1)|||
 |[Freemasonry in the Bakken](https://www.bakkenmasons.com/)|[Facebook](https://www.facebook.com/bakkemasons.com)|-|-|-|
 |[Front Porch Masonic](https://frontporchpodcast357.libsyn.com)|[Facebook](https://www.facebook.com/frontporchmasonic/)|-|-|-|
 |[Historical Light](https://www.historicallight.com/)|[Facebook](https://www.facebook.com/HistoricalLight/)|[YouTube](https://www.youtube.com/historicallight?sub_confirmation=1)|[Twitter](https://twitter.com/historicallight)|[Instagram](https://www.instagram.com/historicallight/)|
 |[In the Chair](https://masonicpodcast.com/)|-|-|-|-|
+|[John S. Nagy](http://www.coach.net)|[Facebook](https://www.facebook.com/johns.nagy)|[YouTube](https://www.youtube.com/channel/UCH9RHaO03M95x-fcBDZtGQw?sub_confirmation=1)|||
 |[Masonic Central](https://www.blogtalkradio.com/masonic-central)|[Facebook](http://www.facebook.com/home.php#/group.php?gid=28936168770)|-|[Twitter](http://www.twitter.com/masoniccentral)|-|
 |[Masonic Improvement](https://www.youtube.com/channel/UCnKjPlQhBbSNSDwK2ljmKRw)|-|[YouTube](https://www.youtube.com/channel/UCnKjPlQhBbSNSDwK2ljmKRw?sub_confirmation=1)|-|-  |
 |[Masonic Life 360](https://anchor.fm/masoniclife360)|-|-|-|-|
@@ -22,9 +24,11 @@
 |[Masonic Radio Theater](http://mrt.uponthesquare.com/)|[Facebook](https://www.facebook.com/masonicradiotheatre)|-|[Twitter](https://twitter.com/masonicradio)|-|
 |[Masonic Wages](https://masonicwages.com/podcast-357/)|[Facebook](https://www.facebook.com/groups/masonicwages/)|[YouTube](https://www.youtube.com/playlist?list=PLPKID4PyUXKlurlyxLs67jzBhLS-PhJlP?sub_confirmation=1)|-|-|
 |[Meet, Act, and Part](https://podtail.com/en/podcast/meet-act-and-part/)|[Facebook](https://www.facebook.com/meetactpart/)|-|-|-|
+|Refracted Light|[YouTube](https://www.youtube.com/channel/UC7HT2IQJJWmtHXC72i_NAOw?sub_confirmation=1)|[Facebook](https://www.facebook.com/groups/refractedlight)||||
 |[Ridecast](https://anchor.fm/yakka-ridings5)|[Facebook](https://www.facebook.com/WidowsSons.Yorkshire/)|-|[Twitter](http://www.twitter.com/rockymtnmason)|-|
 |[Rocky Mountain Mason](https://rockymountainmason.buzzsprout.com/)|[Facebook](http://www.facebook.com/rockymountainmason)|-||[Instagram](https://instagram.com/widowssons_ridingschapter?igshid=11f6j5s8bvlk4)|
 |[Point of Reflection](https://masoniceducationnetwork.podbean.com/)|[Facebook](https://www.facebook.com/groups/MasonicEduNet/)|-|-|[Alt Website](http://www.masoniceducation.network/)|
+|Sapere Aude|[Facebook](https://www.facebook.com/SapereAudeLectures)|[YouTube]https://www.youtube.com/channel/UCnLoAxHaheYdk4ksVXcSuTg?sub_confirmation=1|||[Telegram](https://t.me/joinchat/GwJIDBfwAfJGoJFlbfZiVQ)[WhatsApp](https://chat.whatsapp.com/LAMJkr9l3ry4OwLDP3uU4Q)|
 |[Scottish Rite Journal](https://www.spreaker.com/show/scottish-rite-journal-podcast)|-|-|-|-|
 |[Solomon's Staircase](https://anchor.fm/sslodge357/)|[Facebook](https://www.facebook.com/SSLodge357/)|-|[Twitter](https://twitter.com/SSLodge357)|[Instagram](https://www.instagram.com/sslodge357/)|
 |[The Craftsmen](http://www.thecraftsmenpodcast.com/)|[Facebook](https://www.facebook.com/TheCraftsmenPodcast/)|-|-|-|
